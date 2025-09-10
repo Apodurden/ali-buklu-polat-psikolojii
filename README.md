@@ -1,0 +1,1 @@
+# ali-buklu-polat-psikolojii
